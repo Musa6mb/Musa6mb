@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Musa6mb
 - 👀 I’m interested in cyber security analyst and pen testing 
 - 🌱 I’m currently learning Diploma in cyber security analyst 
-- 💞️ I’m looking to collaborate on Proe
+- 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me context and videos
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
